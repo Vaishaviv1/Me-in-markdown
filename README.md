@@ -1,3 +1,3 @@
 # Me-in-markdown
 
-Hi! My name is Vaishavi Vineetkumar! I am an 11th grader here at Chatsworth Charter High School. I have one brother, his nmae is Krishna. He is 11 years old, he attends Granada Hills Charter Middle School. 
+Hi! My name is Vaishavi Vineetkumar! I am an 11th grader here at Chatsworth Charter High School. I have one brother, his nmae is Krishna. He is 11 years old, he attends Granada Hills Charter Middle School. I also have a dog named Milo, he is turning 3 years old August 21st. I have a few favorite shows, but the one that I am currently watching is Suits. But some others are, Grey's Anatomy, The Rookie, and occasionally I will watch some disney shows for the nostalgic feeling. I had got into reading when I was in 8th grade. Before then, I absolute dispised reading of any shape or form, whether it be reading on my own or for school. The book that got me back into reading was "The Fault in Our Stars". I finished the book in 2 hours in one sitting. 
