@@ -6,7 +6,7 @@ Hi! My name is Vaishavi Vineetkumar! I am an 11th grader here at Chatsworth Char
 
 --------------------------------------------------------------
 
-https://open.spotify.com/playlist/5eMBvw5Qw1kUTezoztADu7
+[Link Text] https://open.spotify.com/playlist/5eMBvw5Qw1kUTezoztADu7
 
 ---------------------------------------------------------------
 
